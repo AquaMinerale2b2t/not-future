@@ -22,6 +22,6 @@ CatGirlPhtantom for dumping it and making the new loader.
 
 a tranny for a future beta account(can you guess who it is?
 
-#GUI
+# GUI
 
 ![image](https://github.com/CatGirlPhantom/FutureBeta/assets/138330165/6d0fc138-9497-4477-a38c-f057d6fbecd5)

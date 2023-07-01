@@ -24,4 +24,4 @@ a tranny for a future beta account(can you guess who it is?
 
 # GUI
 
-![image](https://github.com/CatGirlPhantom/FutureBeta/assets/138330165/6d0fc138-9497-4477-a38c-f057d6fbecd5)
+![2023-05-11_16 21 51](https://github.com/CatGirlPhantom/FutureBeta/assets/138330165/d8f89036-8ed4-4977-a2c8-753ec4880e80)

@@ -1,4 +1,4 @@
-# DISCLAMER
+# DISCLAIMER
 this is shady, dont run this
 
 # futureBeta

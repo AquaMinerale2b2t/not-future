@@ -1,3 +1,6 @@
+# DISCLAMER
+this is shady, dont run this
+
 # futureBeta
 the new security is dookie lmao.
 
